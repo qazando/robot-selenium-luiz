@@ -9,4 +9,4 @@
 
 qazando@gmail.com
 
-Escolha a sua trilha.
+Escolha a sua.
